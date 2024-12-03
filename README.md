@@ -1,2 +1,2 @@
 # cinemate
-edited by Burak Berk
+edited by Burak
